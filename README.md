@@ -1,4 +1,5 @@
-## Hi there 👋
+* 🪷 Hi, I'm @waterlily-lychi-zhou
+* I seek the dao and essence of things - with people as mirrors, the stars as maps, the art of doing as the path
 
 <!--
 **waterlily-lychi-zhou/waterlily-lychi-zhou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
