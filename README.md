@@ -1,4 +1,4 @@
-* 🪷 Hi, I'm @waterlily-lychi-zhou
+* 🪷 Hi, I'm @waterlily-zhou
 * I seek the dao and essence of things - with people as mirrors, the stars as maps, the art of doing as the path
 
 <!--
